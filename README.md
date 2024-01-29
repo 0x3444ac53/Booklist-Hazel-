@@ -8,3 +8,5 @@
     > extramarital sex, and the anxieties of being 22. it's also just kind of about navigating relationships, and a few other things. I loved it, it's good
 - [*I Keep my Exoskeletons to Myself*](https://bookshop.org/p/books/i-keep-my-exoskeleton-to-myself-marisa-crane/18815376?ean=9781646221295), Marisa Crane
     > This was my last read of 2023. I picked it up by chance and holy shit. Okay, so, the government gets rid of prisions and implements a system of public shame, humiliation, and othering for anyone that would be convicted of any crime. That's just the setting. The book itself is about grief and motherhood. it's so good. 
+- [*A Psalm For The Wild Built*](https://bookshop.org/p/books/a-psalm-for-the-wild-built-becky-chambers/15125608), Becky Chambers
+     > Solar punk society in which a non binary tea monk gets burned out and fucks off to the woods to find themself.
